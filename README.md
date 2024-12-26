@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...hedge funds donation
 - 🌱 I’m currently learning ... computer science
 - 💞️ I’m looking to collaborate on ... making bitcoin secure and safe as always
-- 📫 How to reach me ... on signa @solid1.04
+- 📫 How to reach me ... on signal @solid1.04
 - 😄 Pronouns: ...Mr B
 - ⚡ Fun fact: ...
 
